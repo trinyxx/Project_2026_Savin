@@ -1,2 +1,1 @@
-# Project_2026_Savin
-er and design
+https://www.figma.com/design/1n6KpZmPNbhgi8wwMK1bsq/%D0%A4%D0%B0%D1%80%D0%BC%D0%B0-?node-id=0-1&t=TqRMy9d2DGwZ3wmI-1
